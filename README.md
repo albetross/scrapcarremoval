@@ -4,3 +4,5 @@ There are no fees, and we do all the work. You just organize a time that suits y
 We can make this process painless by collecting unwanted cars from your home or office. You'll get paid cash for your vehicle, and we'll take the ownership of that vehicle off your hands, which means someone else will have to deal with it.
 Our friendly team is available 24/7 to answer any of your questions.
 Get rid of your Junker today with minimal work and maximum Cash for it!
+
+<a href="https://goo.gl/maps/W4EcGbqj9b8X7BRZ8">GMB</a>
